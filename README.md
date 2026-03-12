@@ -1,4 +1,4 @@
-# Lucas Nakashima
+# Lucas Kenji Nakashima
 
 🎓 Estudante de Análise e Desenvolvimento de Sistemas (3º semestre)
 
